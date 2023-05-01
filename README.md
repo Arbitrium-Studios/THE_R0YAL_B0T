@@ -1,0 +1,1 @@
+This is archive for the THE_R0YAL_B0T used in the Arbitrium Studios Discord server.
